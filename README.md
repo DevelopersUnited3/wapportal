@@ -1,1 +1,1 @@
-Vodafone live!-like WAP Portal
+Vodafone live! / Sony Ericsson-like WAP Portal
